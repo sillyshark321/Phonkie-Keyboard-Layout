@@ -10,7 +10,6 @@ q l m p b  z f u o y
  r n t h d  c s e a i /
   j x v k ;  w g ' . ,
 ```
-I have no clue how to use GitHub sooooooooooo enjoy my layout :)
 
 ## Design
 **Goals I was aiming for:**
@@ -107,7 +106,3 @@ If you use **Colemak**, copy and paste this:
 ```
 i igyus ilsea imior imiorns iww iwny ird irystea ir; iayurd in inv is gihv ge gehiune gehyfe gelyae gemor geskeer gyst gus g; hiww hir htirme htowd hyfe hyrnodea hyuwd hyuane di; decewyp dy dykr duaorm eiht eiaw; erd ecer e;e lihe lihs leew lek lord loans lywwyk lya lyaf layf mereaiw mes moce my myyd mycear maeis mayup tird tice te teid tewp teae tomt tywd tyfe tyune tyk tykecea ol or orhaeine orseaens orsy os zuns veep vryk wiame wins wise weid weice wole wove wore wosswe wyrm wyyv five fir fir; fi; feir fomts fyae fyns fyce fuht funs risoyr reed recea rek ry rys ryk rufgea yl yll ywd yr yre yrw; yper ya yadea ystea yus ycea ykr pias peypwe peanyr pwihe pwir pwi; pyors pynnogwe paeners paygwef paymaif pugwoh aeiw aomts aur nife ni; nhtyyw nee neef nes nte ntyuwd ntyk norhe nfiww ny nyfe nsird nsise nsoww nuht n;nsef sive seww stir stis ste ster steae stene ste; storm storv ston styne stayumt sofe sy syy suar urdea up une cea; kirs ki; ke keww ktis kter kteae ktoht ktowe kty koww kost kostyus kyad kyav kyawd kyuwd kaose ;eia ;yu 
 ```
-
-## how are you still here
-I also uploaded the layout here because my friend told me to **(warning furry content!!)**
-https://www.furaffinity.net/view/46824938/?upload-successful
